@@ -1,4 +1,4 @@
-bazı salakların itemsatıştan satın aldığı sikko bir kod napıyosanız yapın amk vermeyin şu salak salak insanların koduna para alacaksanız adam akıllı kişilerden alıp iyi günler
+bazı salakların itemsatıştan satın aldığı sikko bir kod napıyosanız yapın amk vermeyin şu salak salak insanların koduna para alacaksanız adam akıllı kişilerden alın iyi günler
 
 
 
