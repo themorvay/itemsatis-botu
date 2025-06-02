@@ -1,1 +1,10 @@
-# itemsatis-botu
+bazı salakların itemsatıştan satın aldığı sikko bir kod napıyosanız yapın amk vermeyin şu salak salak insanların koduna para alacaksanız adam akıllı kişilerden alıp iyi günler
+
+
+
+
+
+
+
+
+https://camo.githubusercontent.com/3dd0273e2a1c33d1100ebe62d689ae6028f987fa4db9a2152804f9c3706535ec/68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d7468656d6f72766179267265706f3d6d66612d6669782d736e6970657226636f6c6f723d677265656e
