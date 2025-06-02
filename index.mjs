@@ -367,7 +367,7 @@ tlsSocket.on("secureConnect", () => {
         properties: {
           os: "MacOs",
           browser: "firefox",
-          device: "seonıc1871",
+          device: "",
         },
       },
     }));
